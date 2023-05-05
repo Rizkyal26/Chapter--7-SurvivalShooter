@@ -8,5 +8,4 @@ Update Add:
 + Increase Damage Main Character
 
 NOTE: 
-maaf kak, untuk file Build saya upload di tempat yang berbeda. tepatnya di Tag Release
-dikarenakan ukuran yang terlalu besar jadi saya mengkompresi nya kedalam winrar
+Just Whatever you want to stay Alive, Cause it's Time to Survival...
